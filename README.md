@@ -4,3 +4,7 @@ What made the session even more meaningful was the presence of the **chief guest
 
 Most importantly, our **professors** offered guidance that went beyond academics. They encouraged us to stay curious, work hard, and use every opportunity to shape ourselves into capable and confident individuals. Their words gave us clarity and direction, and left many of us feeling motivated and hopeful about what lies ahead.[8/1, 6:00 PM] 0: Once we returned to campus, we took a well-deserved break and recharged with some delicious refreshments. The courtyard was lively as everyone enjoyed crispy **pakoras**, steaming **hot chai**, mouth-watering **gulab jamuns**, and chilled drinks. It was the perfect combination to lift our spirits and energize us for the exciting activities that were about to follow. The food, the setting, and the company made it a truly refreshing pause in the day.
 [8/1, 6:00 PM] 0: We began our day on a peaceful and spiritual note, as our entire batch walked together to the campus Gurudwara Sahib. The atmosphere was serene, and the soulful **shabad kirtan** playing in the background created a deep sense of calm. It felt like the perfect way to center ourselves before diving into the busy schedule ahead — a quiet moment of reflection and togetherness before the hustle truly began.
+FATHER NAME:-JAGDEV RAY
+
+ DAY 2 
+ I first went to the Gurudwara for darshan at 7:20 am and had breakfast from 8:00 am to 8:20 am. Then I attended the auditorium induction program from 8:30 am to 1:30 pm.
