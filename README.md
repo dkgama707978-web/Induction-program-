@@ -19,4 +19,23 @@ FATHER NAME:-JAGDEV RAY
  7. 12th Marksheet
  8. 10th Marksheet
  9. Bank passbook
- 10.Previous Year Marksheet (Academic
+ 10.Previous Year Marksheet (Academic).1.
+
+  DAY 3
+BREAKFAST 8:00AM
+UHV SESSION 99:00AM START
+
+xploring our Aspirations and Concerns:
+Get to know as many of your batch mates as you can! You should be able to introduce at 
+least 5 of them in detail.
+ 1.2. Make a list of your
+ •Aspiration
+ You may like to include the expectationsof your family, friends and hopes the 
+nation has from you
+ ▪Concerns,  
+ When a human being has lack of physical facility, he becomes uncomfortable and unhappy
+ But once he gets the physical facility, he forgets about it and starts thinking about hundred other 
+things
+Harmony in Human Being-Harmony in  Family-Harmony in  Society-Harmony in 
+Nature/Existenc
+ 3:30PM 
