@@ -1,4 +1,4 @@
-# Induction-program-CSE ;.My name is Dhiraj Kumar.My father name is jagdev ray.My branch name is CSE .My strength is physics.My aim is AI engineerAfter the break, we gathered in the main auditorium for an orientation session that gave us a deeper understanding of life at GNDEC. The faculty walked us through the institute’s **history and vision**, helping us see the legacy we’re now a part of. They also introduced us to the wide range of **facilities, resources**, and **student-led clubs and labs** available on campus, which opened our eyes to the many ways we can grow both personally and professionally during our time here.
+# Induction-program-CSE ;.My name is Dhiraj Kumar.My father name is jagdev ray.My branch name is CSE .My strength is physics.My aim is ISRO joining (space studying ).After the break, we gathered in the main auditorium for an orientation session that gave us a deeper understanding of life at GNDEC. The faculty walked us through the institute’s **history and vision**, helping us see the legacy we’re now a part of. They also introduced us to the wide range of **facilities, resources**, and **student-led clubs and labs** available on campus, which opened our eyes to the many ways we can grow both personally and professionally during our time here.
 
 What made the session even more meaningful was the presence of the **chief guest**, who shared inspiring words drawn from real-life experience, reminding us of the potential each of us holds. Our **seniors** also played a key role, warmly welcoming us and offering support that made us feel comfortable and at ease in this new chapter of our lives.
 
@@ -23,7 +23,7 @@ FATHER NAME:-JAGDEV RAY
 
   DAY 3
 BREAKFAST 8:00AM
-UHV SESSION 99:00AM START
+UHV SESSION 9:00AM START
 
 xploring our Aspirations and Concerns:
 Get to know as many of your batch mates as you can! You should be able to introduce at 
