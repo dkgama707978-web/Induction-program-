@@ -100,7 +100,7 @@ Team up and compete against others Use real motorsport logic – power, grip, da
 
 📲 Register for the workshop now & be part of the action!
 
-https://forms.gle/mknjTLHXJQAnZ4LX6
+
 
 Contact for any query:
 Gautam Murria 
@@ -123,6 +123,7 @@ Day 7
 9:00am to 10:00am Mrs.shafty Makkar on "Millets super food"
 
 10:30am to 12:00pm math lecture by prof.Gagandeep Kaur Lotey 
+
 
 
 
