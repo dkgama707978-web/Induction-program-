@@ -10,6 +10,7 @@ Most importantly, our **professors** offered guidance that went beyond academics
 FATHER NAME:-JAGDEV RAY
 
  DAY 2 
+ 
  I first went to the Gurudwara for darshan at 7:20 am and had breakfast from 8:00 am to 8:20 am. Then I attended the auditorium induction program from 8:30 am to 1:30 pm.Satya Scholarship Program 2025
  Documents List
  1. Passport Size Photograph
@@ -25,6 +26,8 @@ FATHER NAME:-JAGDEV RAY
  10.Previous Year Marksheet (Academic).1.
 
   DAY 3
+
+  
 BREAKFAST 8:00AM
  2:30pm to 3:30pm caustic club auditorium session
 
@@ -62,6 +65,8 @@ Explore your close relationships – in the family, with friends, in the workpla
 
 
 Day 4
+
+
 I went to the Gurudwara from 7:30 am to 8:00 am and meditated there. Had breakfast from 8:00 am to 8:30 am and then attended class from 10:30 am to 11:30 am.
 
 12:30pm to 2:00pm lecture by Dr. Arvind Dhingra (Director _ STEP & incharge _TAC)
@@ -114,9 +119,11 @@ Harminder Kaur
 
 Day 7
 
+
 9:00am to 10:00am Mrs.shafty Makkar on "Millets super food"
 
 10:30am to 12:00pm math lecture by prof.Gagandeep Kaur Lotey 
+
 
 
 
