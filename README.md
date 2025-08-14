@@ -102,6 +102,17 @@ Day 6
 
 
 9:30am to 10:30am Dr.Amit Kamra (incharge -DMC)
+10:30am to11:30am Dr.parminder Singh (Dean-student walfare)
+11:30am to 12:30am by Dr.Randhir Singh on "conduct of examination"
+1:30pm to 2:30pm BEEE lecture by prof
+Harminder Kaur
+2:30pm to 3:30pm math lecture by Prof Gagandeep Kaur Lotey
+
+Day 7
+
+9:00am to 10:00am Mrs.shafty Makkar on "Millets super food"
+
+10:30am to 12:00pm math lecture by prof.Gagandeep Kaur Lotey 
 
 
 
