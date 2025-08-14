@@ -58,11 +58,25 @@ Explore your close relationships – in the family, with friends, in the workpla
 
 
 Day 4
+I went to the Gurudwara from 7:30 am to 8:00 am and meditated there. Had breakfast from 8:00 am to 8:30 am and then attended class from 10:30 am to 11:30 am.
 
 12:30pm to 2:00pm lecture by Dr. Arvind Dhingra (Director _ STEP & incharge _TAC)
 best motivational speech by arvind Dhingra 
 
 2:00pm to 3:00pm lecture by Mr.Jasvir Singh sekhon(District resource person -STEM)
+
+Day 5 
+
+I went to the Gurudwara from 7:30 am to 8:00 am and meditated there. Had breakfast from 8:00 am to 8:30 am
+
+10:30am to 11:30am BEEE lecture by Harminder Kaur 
+
+11:30am to 12:30pm lunch break and 2:00pm to 4:00pm (TCC sem Hall) for ID card formation 
+8:00pm to 8:30pm dinner 
+
+
+
+
 
 
 
