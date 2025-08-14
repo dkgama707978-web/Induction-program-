@@ -39,3 +39,13 @@ things
 Harmony in Human Being-Harmony in  Family-Harmony in  Society-Harmony in 
 Nature/Existenc
  3:30PM 
+We do get into arguments, opposition and fights… even in the family, with close friends, with 
+colleagues at work… in the marketplace…
+Every time we have a fight, we want to resolve it…
+We say sorry, patch up and promise not to fight in future but…
+Even though we don’t want to, a fight does take place once again
+(we want the other to improve… and the other wants us to improve…)
+Is this happening?
+Are incidences of reaction… not speaking to the other… arguments… debates… divorce… 
+increasing or decreasing?
+Explore your close relationships – in the family, with friends, in the workplace, in the society
