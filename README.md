@@ -23,7 +23,12 @@ FATHER NAME:-JAGDEV RAY
 
   DAY 3
 BREAKFAST 8:00AM
-UHV SESSION 9:00AM START
+ 2:30pm to 3:30pm caustic club auditorium session
+
+
+
+12:30pm to 2:30pm lecture by Dr. priya Darshni madam on "universal Human value-2"
+explain session:
 
 xploring our Aspirations and Concerns:
 Get to know as many of your batch mates as you can! You should be able to introduce at 
@@ -49,3 +54,16 @@ Is this happening?
 Are incidences of reaction… not speaking to the other… arguments… debates… divorce… 
 increasing or decreasing?
 Explore your close relationships – in the family, with friends, in the workplace, in the society
+
+
+
+Day 4
+
+12:30pm to 2:00pm lecture by Dr. Arvind Dhingra (Director _ STEP & incharge _TAC)
+best motivational speech by arvind Dhingra 
+
+2:00pm to 3:00pm lecture by Mr.Jasvir Singh sekhon(District resource person -STEM)
+
+
+
+
