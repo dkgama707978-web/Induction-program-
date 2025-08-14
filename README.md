@@ -72,8 +72,36 @@ I went to the Gurudwara from 7:30 am to 8:00 am and meditated there. Had breakfa
 10:30am to 11:30am BEEE lecture by Harminder Kaur 
 
 11:30am to 12:30pm lunch break and 2:00pm to 4:00pm (TCC sem Hall) for ID card formation 
-8:00pm to 8:30pm dinner 
+8:00pm to 8:30pm dinner
 
+
+by Gautam Murria 🏁 The Genconian Craft Prix is coming BACK! 🏁
+
+
+
+Think you can design, build & race like a pro?
+
+ Build your own RC car from scratch
+Team up and compete against others Use real motorsport logic – power, grip, data!
+ Open to all branches *– 1st years especially welcome!*
+
+ Intro workshop coming soon – don’t miss out!
+
+🏆 Winners get certificates, glory, and a head start in future tech fests!
+
+📲 Register for the workshop now & be part of the action!
+
+https://forms.gle/mknjTLHXJQAnZ4LX6
+
+Contact for any query:
+Gautam Murria 
+(Event Coordinator)
++919988432708
+
+Day 6
+
+
+9:30am to 10:30am Dr.Amit Kamra (incharge -DMC)
 
 
 
